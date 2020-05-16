@@ -1,1 +1,1 @@
-Practicing Scales is good
+https://hendrikpawlowski.github.io/scalepractice.github.io/
