@@ -1,1 +1,1 @@
-hi
+Practicing Scales is good
